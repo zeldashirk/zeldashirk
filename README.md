@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zeldashirk
-- 👀 I’m interested in ...
+- 📚 I go to Southern Methodist University
 - 🌱 I’m currently learning ... CRCP3305 & CRCP2310
 - 💞️ I’m looking to collaborate on ... n/a
 - 📫 How to reach me ... 972-765-7385 cupcake11901@live.com
